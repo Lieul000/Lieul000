@@ -1,10 +1,5 @@
 - 👋 Hi, I’m @Lieul000 , byte-size junior SOC.
 
-Hey there, cyber enthusiasts! 👋 With a background that's a bit of a mixed bag—think sales, management, customer service, and even a dash of entrepreneurship.
-I bring a refreshing twist to the world of digital security. 
-I thrive in dynamic environments, adapting quickly to new challenges and emerging threats. 
-Let's connect and explore how my multifaceted background can contribute to enhancing your organization's cybersecurity posture.  
-
 - 👀 I’m interested in GRC and about probably anything if you are passionate about it.
   
 - 🌱 I’m currently learning how to navigate in this world.
