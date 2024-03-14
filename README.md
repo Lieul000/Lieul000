@@ -2,8 +2,8 @@
 
 - 👀 I’m interested in GRC and about probably anything if you are passionate about it.
   
-- 🌱 I’m currently learning how to navigate in this world.
-- 💞️ I’m looking to collaborate on awareness into cybersecurity. I strongly believe all of us can be our own firewall.
+- 🌱 I'm just figuring out the ropes in this crazy world.
+- 💞️ I'm up for teaming up to spread the word about cybersecurity. I really think we've all got what it takes to be our own firewall.
 - 📫 How to reach me : mail or message should be working
 - 😄 Pronouns: She/her
 
