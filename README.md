@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lieul000 , byte-size junior SOC.
+- 👋 Hi, I’m @Lieul000 , byte-size junior Cyber analyst.
 
 - 👀 I’m interested in GRC and about probably anything if you are passionate about it.
   
